@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JANLAUREN
-- 👀 I’m interested in investing monet
+- 👀 I’m interested in investing money
 - 🌱 I’m currently learning the basics of crypto
 - 💞️ I’m looking to collaborate on everyrhing
 - 📫 How to reach me via my email
